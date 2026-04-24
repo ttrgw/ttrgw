@@ -7,6 +7,6 @@
 🔒 **海外永久（需挂 VPN）：** https://ttrgw.com
 
 📍 **防失联与交流渠道**
-* **自动获取最新地址：** 发邮件至 `tiantianreguawang@gmail.com`
+* **自动获取最新地址：** 发邮件至 `tiantianreguawang@gmail.com` （天天热瓜网全拼）
 * **官方社群与发布页：** [Telegram 官方群](https://t.me/ttrgw_com) ｜ [GitHub 发布页](https://github.com/ttrgw)
 * **商务与广告合作：** [访问合作页面](https://t1t1.com/)
